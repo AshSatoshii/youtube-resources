@@ -12,3 +12,5 @@ From the great Jordan Shanks I'mma roughly paraphrase "You should be okay/accept
 
 https://www.youtube.com/watch?v=1nHxaqNFpCU
 https://neatontherocks.com/en-cad/
+
+https://www.youtube.com/watch?v=tTSckj2ILkw
